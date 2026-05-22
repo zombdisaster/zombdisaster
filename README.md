@@ -1,6 +1,6 @@
 
 
-wip im too lazy rn ill make this pretty later
+Heh... My doctor said that I have hentai virus and I might die... Daijoubu...! I'll be fine! But I'm going have to start gooning to hentai nonstop 24/7... There's no cure to it...
 
 
 
