@@ -2,6 +2,7 @@
 
 Heh... My doctor said that I have hentai virus and I might die... Daijoubu...! I'll be fine! But I'm going have to start gooning to hentai nonstop 24/7... There's no cure to it...
 
+- TIM HERE! THIS IS MY OWN COPYPASTA IVE MADE TO SPREAD IT AWARE AS IN MY OWN CATCHPHRASE SO IF U WANT TO FEEL FREE TO COPY AND PASTE IT EVERYWHERE U WANT!! IDM :3 
 
 
 
