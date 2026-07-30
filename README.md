@@ -12,6 +12,11 @@ $${\color{#00bd26}arts \space credits \space to \space my \space husband! \space
 
 
 
+<img width="110" height="60" alt="tumblr_dae936eb62ddcda25c9d91308f81dd21_f032f0a7_250" src="https://github.com/user-attachments/assets/0ac46c4b-2b9e-4b79-a0dd-d58c0f4b1903" /> <img width="99" height="56" alt="tumblr_68f421c17bddbd2dc41317655dbf6316_a0ce3383_100" src="https://github.com/user-attachments/assets/00d208c1-2b05-473e-98fc-cd95d83ac2c3" />
+
+<img width="150" height="20" alt="tumblr_fa69d997f62b216624bd6058a28c35d0_4dc87083_250" src="https://github.com/user-attachments/assets/b0ff7183-f2aa-43db-9537-f0330c900d40" /> <img width="150" height="20" alt="tumblr_06d4d5218be4d8944bff7d78c5fcaef4_2e7a5a00_250" src="https://github.com/user-attachments/assets/f9dd7f49-1030-46ab-9d6e-cca876ed82ec" />
+
+
 <img width="2048" height="123" alt="tumblr_bf4661888dec560a0dc31f0c5b79ee77_ec54c6ae_2048" src="https://github.com/user-attachments/assets/a7935bfe-50a2-43b4-9ef3-30b5839f4e34" />
 
 <img width="2496" height="778" alt="download (1)" src="https://github.com/user-attachments/assets/d6ce8186-f76c-47be-99b5-00e770b1f01e" />
