@@ -12,7 +12,7 @@ $${\color{#00bd26}arts \space credits \space to \space my \space husband! \space
 
 
 
-<img width="110" height="60" alt="tumblr_dae936eb62ddcda25c9d91308f81dd21_f032f0a7_250" src="https://github.com/user-attachments/assets/0ac46c4b-2b9e-4b79-a0dd-d58c0f4b1903" /> <img width="99" height="56" alt="tumblr_68f421c17bddbd2dc41317655dbf6316_a0ce3383_100" src="https://github.com/user-attachments/assets/00d208c1-2b05-473e-98fc-cd95d83ac2c3" />
+<img width="110" height="60" alt="tumblr_dae936eb62ddcda25c9d91308f81dd21_f032f0a7_250" src="https://github.com/user-attachments/assets/0ac46c4b-2b9e-4b79-a0dd-d58c0f4b1903" /> <img width="99" height="56" alt="tumblr_68f421c17bddbd2dc41317655dbf6316_a0ce3383_100" src="https://github.com/user-attachments/assets/00d208c1-2b05-473e-98fc-cd95d83ac2c3" /> 
 
 <img width="150" height="20" alt="tumblr_fa69d997f62b216624bd6058a28c35d0_4dc87083_250" src="https://github.com/user-attachments/assets/b0ff7183-f2aa-43db-9537-f0330c900d40" /> <img width="150" height="20" alt="tumblr_06d4d5218be4d8944bff7d78c5fcaef4_2e7a5a00_250" src="https://github.com/user-attachments/assets/f9dd7f49-1030-46ab-9d6e-cca876ed82ec" />
 
@@ -27,5 +27,9 @@ $${\color{#03850b}PT's \space Teenage \space Disaster \space(rewarded \space by 
 $${\color{#ad1d00}PT's \space Tim \space Wright \space(rewarded \space by \space @pt-walk-of-fame)}$$
 
 $${\color{#98fa4d}PT's \space Cool \space Player \space(rewarded \space both \space by \space @pt-fashion \space and \space @pt-players)}$$
+
+$${\color{#056e1e}honour \space mentions: }$$ 
+$${\color{#ab0510}no. \space 1 \space @yukitozy \space FAN!!}$$ ‎
+<img width="20" height="20" alt="IMG-7147" src="https://github.com/user-attachments/assets/4a1ffbbb-be5c-4aba-bf87-5fc36540f61e" />
 
 
