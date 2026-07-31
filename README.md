@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=zombdisaster&color=017511&style=plastic&label=ZOMBIES&base=10000)
+![](https://komarev.com/ghpvc/?username=zombdisaster&color=017511&style=plastic&label=ZOMBIES&base=10000&abbreviated=true)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Germania+One&size=22&duration=2000&pause=1000&color=36F747&width=435&lines=It's+alive!;Baby+girl%2C+won't+you+be+my+monster%3F)](https://git.io/typing-svg)
 
