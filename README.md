@@ -11,7 +11,7 @@ $${\color{green}C+H/INT \space any! \space unless}{\color{#ff0800}dni.}$$
 $${\color{#39bf00}Do \space not \space cover}{\color{#750402}or \space upload \space my \space skins \space onto \space pinterest}$$
 $${\color{#bd2713}more \space info \space in \space links}$$
 
-$${\color{#00bd26}all \space arts \space credits \space are \space made \space by \space my \space husband! \space}{\color{#d40e00}(@3PlTAPH)♡}$$
+$${\color{#00bd26}all \space arts \space are \space made \space by \space my \space husband! \space}{\color{#d40e00}(@3PlTAPH)♡}$$
 
 
 
