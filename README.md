@@ -8,10 +8,10 @@
 $${\color{green}Tim \space / \space Thorne}$$
 $${\color{green}he \space /}{\color{#8c150d}vamps ★}{\color{#00ff00}19 yrs ★}{\color{#d60f3d}taken \space < T \space 3}$$
 $${\color{green}C+H/INT \space any! \space unless}{\color{#ff0800}dni.}$$
-$${\color{#39bf00}Do \space not \space cover}{\color{#750402}or \space upload \space my \space skins \space on \space pinterest}$$
+$${\color{#39bf00}Do \space not \space cover}{\color{#750402}or \space upload \space my \space skins \space onto \space pinterest}$$
 $${\color{#bd2713}more \space info \space in \space links}$$
 
-$${\color{#00bd26}arts \space credits \space to \space my \space husband! \space (@3PlTAPH)♡}$$
+$${\color{#00bd26}all \space arts \space credits \space are \space made \space by \space my \space husband! \space}{\color{#d40e00}(@3PlTAPH)♡}$$
 
 
 
