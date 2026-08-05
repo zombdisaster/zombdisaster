@@ -39,8 +39,12 @@ $${\color{#98fa4d}PT's \space Cool \space Player \space(rewarded \space both \sp
 
 $${\color{#ad002b}PT's \space Awesomeness's \space Tim \space Wright \space(rewarded \space by \space @pt-of-awesomeness)}$$
 
+$${\color{#1bb33e} Prettiest \space Giithub \space Profile \space(rewarded \space by \space @ponychievements)}$$
+
 $${\color{#056e1e}honour \space mentions: }$$ 
 $${\color{#ab0510}no. \space 1 \space @yukitozy \space FAN!!}$$ ‎
 <img width="20" height="20" alt="IMG-7147" src="https://github.com/user-attachments/assets/4a1ffbbb-be5c-4aba-bf87-5fc36540f61e" />
+
+
 
 
