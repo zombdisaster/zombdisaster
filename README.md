@@ -28,7 +28,6 @@ $${\color{#00bd26}all \space arts \space are \space made \space by \space my \sp
 
 <img width="2048" height="123" alt="tumblr_bf4661888dec560a0dc31f0c5b79ee77_ec54c6ae_2048" src="https://github.com/user-attachments/assets/a7935bfe-50a2-43b4-9ef3-30b5839f4e34" />
 
-<img width="2496" height="778" alt="download (1)" src="https://github.com/user-attachments/assets/d6ce8186-f76c-47be-99b5-00e770b1f01e" />
 
 
 $${\color{#03850b}PT's \space Teenage \space Disaster \space(rewarded \space by \space @pt-hall-of-media)}$$ 
