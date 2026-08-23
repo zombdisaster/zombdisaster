@@ -30,7 +30,8 @@ $${\color{#00bd26}all \space arts \space are \space made \space by \space my \sp
 
 
 
-$${\color{#fc1900}@pt-hall-of-media, \space @pt-walk-of-fame, \space @pt-players, \space @pt-of-awesomeness, \space @ponychievements}$$ 
+$${\color{#fc1900}@pt-hall-of-media, \space @pt-walk-of-fame, \space @pt-players, \space @pt-of-awesomeness, \space @ponychievements \space @pt-of-awesomeness}$$ 
+
 
 
 
