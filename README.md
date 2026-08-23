@@ -11,7 +11,7 @@ $${\color{green}C+H/INT \space any! \space unless}{\color{#ff0800}dni.}$$
 $${\color{#39bf00}Do \space not \space copy}{\color{#750402}or \space upload \space my \space skins \space onto \space pinterest}$$
 $${\color{#bd2713}more \space info \space in \space links}$$
 
-$${\color{#00bd26}all \space arts \space are \space made \space by \space my \space husband! \space}{\color{#d40e00}(@3PlTAPH)♡}$$
+$${\color{#00bd26}all \space arts \space are \space made \space by \space my \space husband \space}{\color{#d40e00}(@3PlTAPH)♡}$$
 
 
 
@@ -30,18 +30,12 @@ $${\color{#00bd26}all \space arts \space are \space made \space by \space my \sp
 
 
 
-$${\color{#03850b}PT's \space Teenage \space Disaster \space(rewarded \space by \space @pt-hall-of-media)}$$ 
+$${\color{#fc1900}@pt-hall-of-media, \space @pt-walk-of-fame, \space @pt-players, \space @pt-of-awesomeness, \space @ponychievements}$$ 
 
-$${\color{#ad1d00}PT's \space Tim \space Wright \space(rewarded \space by \space @pt-walk-of-fame)}$$
 
-$${\color{#98fa4d}PT's \space Cool \space Player \space(rewarded \space both \space by \space @pt-fashion \space and \space @pt-players)}$$
 
-$${\color{#ad002b}PT's \space Awesomeness's \space Tim \space Wright \space(rewarded \space by \space @pt-of-awesomeness)}$$
-
-$${\color{#1bb33e} Prettiest \space Giithub \space Profile \space(rewarded \space by \space @ponychievements)}$$
-
-$${\color{#056e1e}honour \space mentions: }$$ 
-$${\color{#ab0510}no. \space 1 \space @yukitozy \space FAN!!}$$ ‎
+$${\color{#056e1e}honour \space mention: }$$ 
+$${\color{#ab0510}@yukitozy \space !!}$$ ‎
 <img width="20" height="20" alt="IMG-7147" src="https://github.com/user-attachments/assets/4a1ffbbb-be5c-4aba-bf87-5fc36540f61e" />
 
 
