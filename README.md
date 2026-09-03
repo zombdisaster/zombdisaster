@@ -15,8 +15,7 @@ $${\color{#00bd26}all \space arts \space are \space made \space by \space my \sp
 
 
 
-<img width="99" height="56" alt="tumblr_185afa597b03cfbc78156716910abc22_198af5de_100" src="https://github.com/user-attachments/assets/efce7ed6-191a-4be5-880a-e57f88b90052" /> <img width="99" height="55" alt="tumblr_5fa391b151fe53aa5924bcf25993c202_5a5896e1_100" src="https://github.com/user-attachments/assets/391d46e7-952b-46cd-bcc9-6e45ada3ea24" />
- <img width="110" height="60" alt="tumblr_dae936eb62ddcda25c9d91308f81dd21_f032f0a7_250" src="https://github.com/user-attachments/assets/0ac46c4b-2b9e-4b79-a0dd-d58c0f4b1903" /> <img width="99" height="56" alt="tumblr_68f421c17bddbd2dc41317655dbf6316_a0ce3383_100" src="https://github.com/user-attachments/assets/00d208c1-2b05-473e-98fc-cd95d83ac2c3" /> <img width="99" height="56" alt="tumblr_f9dc2b8ef3b426b67c4b41d5f44391aa_af334f11_100" src="https://github.com/user-attachments/assets/4986eda7-b95a-4026-8142-663c664a8833" /> <img width="99" height="56" alt="tumblr_4a64721d8d355372622f3241d44d2b93_870c5df6_100" src="https://github.com/user-attachments/assets/08021b17-5ba3-406e-b785-79832515ad03" /> <img width="99" height="57" alt="tumblr_03b00d5fb7fa30e21d31d95c09abfdf4_6225fe45_100" src="https://github.com/user-attachments/assets/4d7f82e6-e28b-4ef8-a708-3cce1d5c8166" /> <img width="99" height="56" alt="tumblr_eabdf694bc7abee8ac77e9c9982634c1_78e848b8_100" src="https://github.com/user-attachments/assets/e0dad86a-4975-48ff-9d8f-5811abb205ec" />
+<img width="99" height="56" alt="tumblr_185afa597b03cfbc78156716910abc22_198af5de_100" src="https://github.com/user-attachments/assets/efce7ed6-191a-4be5-880a-e57f88b90052" /> <img width="99" height="55" alt="tumblr_5fa391b151fe53aa5924bcf25993c202_5a5896e1_100" src="https://github.com/user-attachments/assets/391d46e7-952b-46cd-bcc9-6e45ada3ea24" /><img width="110" height="60" alt="tumblr_dae936eb62ddcda25c9d91308f81dd21_f032f0a7_250" src="https://github.com/user-attachments/assets/0ac46c4b-2b9e-4b79-a0dd-d58c0f4b1903" /> <img width="99" height="56" alt="tumblr_68f421c17bddbd2dc41317655dbf6316_a0ce3383_100" src="https://github.com/user-attachments/assets/00d208c1-2b05-473e-98fc-cd95d83ac2c3" /> <img width="99" height="56" alt="tumblr_f9dc2b8ef3b426b67c4b41d5f44391aa_af334f11_100" src="https://github.com/user-attachments/assets/4986eda7-b95a-4026-8142-663c664a8833" /> <img width="99" height="56" alt="tumblr_4a64721d8d355372622f3241d44d2b93_870c5df6_100" src="https://github.com/user-attachments/assets/08021b17-5ba3-406e-b785-79832515ad03" /> <img width="99" height="57" alt="tumblr_03b00d5fb7fa30e21d31d95c09abfdf4_6225fe45_100" src="https://github.com/user-attachments/assets/4d7f82e6-e28b-4ef8-a708-3cce1d5c8166" /> <img width="99" height="56" alt="tumblr_eabdf694bc7abee8ac77e9c9982634c1_78e848b8_100" src="https://github.com/user-attachments/assets/e0dad86a-4975-48ff-9d8f-5811abb205ec" /><img width="101" height="56" alt="tumblr_730592457a9d752ac2ed415e0ca0fa0c_3c689bc7_250" src="https://github.com/user-attachments/assets/a988a8b1-97ac-49a6-80e2-08dca31cdcff" />
 
 
 
@@ -30,15 +29,12 @@ $${\color{#00bd26}all \space arts \space are \space made \space by \space my \sp
 
 
 
+$${\color{#ab001f}tysm \space !!}$$
 $${\color{#fc1900}@pt-hall-of-media, \space @pt-walk-of-fame, \space @pt-players, \space @pt-of-awesomeness, \space @ponychievements}$$
 $${\color{#fc1900}@pt-of-awesomeness, \space @cosplaytown}$$
 
 
-
-
-$${\color{#056e1e}honour \space mention: }$$ 
-$${\color{#ab0510}@yukitozy \space !!}$$ ‎
-<img width="20" height="20" alt="IMG-7147" src="https://github.com/user-attachments/assets/4a1ffbbb-be5c-4aba-bf87-5fc36540f61e" />
+$${\color{#a10303}pt's \space tim \space wright \space and}{\color{#027331}teenage \space disaster!}$$
 
 
 
