@@ -1,9 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=zombdisaster&color=017511&style=plastic&label=ZOMBIES&base=10000&abbreviated=true)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Germania+One&size=22&duration=2000&pause=1000&color=36F747&width=435&lines=It's+alive!;Baby+girl%2C+won't+you+be+my+monster%3F)](https://git.io/typing-svg)
 
-<img width="724" height="724" alt="download" src="https://github.com/user-attachments/assets/9c498135-c5b8-49fb-b7fe-12a13dddb5b5" />
-
+<p align="center"><img width="300" height="300" alt="download" src="https://github.com/user-attachments/assets/9c498135-c5b8-49fb-b7fe-12a13dddb5b5" /></p> 
 
 $${\color{green}Tim \space / \space Thorne}$$
 $${\color{green}he \space /}{\color{#8c150d}vamps ★}{\color{#00ff00}19 yrs ★}{\color{#d60f3d}taken \space < T \space 3}$$
@@ -11,7 +9,7 @@ $${\color{green}C+H/INT \space any! \space unless}{\color{#ff0800}dni.}$$
 $${\color{#39bf00}Do \space not \space copy}{\color{#750402}or \space upload \space my \space skins \space onto \space pinterest}$$
 $${\color{#bd2713}more \space info \space in \space links}$$
 
-$${\color{#00bd26}all \space arts \space are \space made \space by \space my \space husband \space}{\color{#d40e00}(@3PlTAPH)♡}$$
+$${\color{#00bd26}all \space arts \space are \space made \space by \space my \space husband \space}{\color{#d40e00}(@3PlTAPH)♡}$$ 
 
 
 
