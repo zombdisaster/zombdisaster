@@ -1,7 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=zombdisaster&color=017511&style=plastic&label=ZOMBIES&base=10000&abbreviated=true)
 
-
-<p align="center"><img width="300" height="300" alt="download" src="https://github.com/user-attachments/assets/9c498135-c5b8-49fb-b7fe-12a13dddb5b5" /></p> 
+<p align="center"> <img src="https://github.com/user-attachments/assets/9c498135-c5b8-49fb-b7fe-12a13dddb5b5" width="300" /> </p>
 
 $${\color{green}Tim \space / \space Thorne}$$
 $${\color{green}he \space /}{\color{#8c150d}vamps ★}{\color{#00ff00}19 yrs ★}{\color{#d60f3d}taken \space < T \space 3}$$
@@ -13,7 +12,7 @@ $${\color{#39bf00}Do \space not \space copy}{\color{#750402}or \space upload \sp
 $${\color{#00bd26}all \space arts \space are \space made \space by \space my \space husband \space}{\color{#d40e00}(@3PlTAPH)♡}$$ 
 
 
-<img width="2048" height="123" alt="tumblr_bf4661888dec560a0dc31f0c5b79ee77_ec54c6ae_2048" src="https://github.com/user-attachments/assets/a7935bfe-50a2-43b4-9ef3-30b5839f4e34" />
+<img src="https://github.com/user-attachments/assets/a7935bfe-50a2-43b4-9ef3-30b5839f4e34" />
 
 $${\color{#a10303}pt's \space tim \space wright \space and}{\color{#027331}teenage \space disaster}$$
 
