@@ -7,7 +7,7 @@ $${\color{green}he \space /}{\color{#8c150d}vamps ★}{\color{#00ff00}19 yrs ★
 $${\color{green}C+H/INT \space any! \space unless}{\color{#ff0800}dni.}$$
 $${\color{#39bf00}Do \space not \space copy}{\color{#750402}or \space upload \space my \space skins \space onto \space pinterest}$$
 
-<p align="center"> <img src= "https://github.com/user-attachments/assets/436d4909-7b97-4695-ac97-d5a04dcec543" width="20" /> <a href="https://steddieyaoi.straw.page/">‎strawpage</a> <a href="https://teenagedisaster.atabook.org/?page=1">新book</a>    </p> 
+<p align="center"> <a href="https://steddieyaoi.straw.page/">‎strawpage</a> <a href="https://rentry.co/mantonyaoi">‎rentry</a> <a href="https://teenagedisaster.atabook.org/?page=1">新book</a>  <img src= "https://github.com/user-attachments/assets/436d4909-7b97-4695-ac97-d5a04dcec543" width="20" /> </p> 
 
 $${\color{#00bd26}all \space arts \space are \space made \space by \space my \space husband \space}{\color{#d40e00}(@3PlTAPH)♡}$$ 
 
